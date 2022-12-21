@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Vindaugar
-- 🪄 I am the founder and administrator of Wizard-tool.com, which is one of the most popular Harry Potter fansite in China.
+- 🪄 I am the founder and administrator of Wizard-tool.com, which is one of the most popular Harry Potter fansites in China.
 - 💞️ In my life, I'm a huge railfan for decades, and recently, I became a fan of flight simulator.
 - 📫 My email is wizard-tool@outlook.com, and my Weibo is @Vindaugar.
 
